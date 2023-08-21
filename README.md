@@ -1,1 +1,1 @@
-# worldoftanks.blitz.com
+[# [worldoftanks.blitz.com](https://github7771.github.io/worldoftanks.blitz.com/)https://github7771.github.io/worldoftanks.blitz.com/](https://github7771.github.io/worldoftanks.blitz.com/)https://github7771.github.io/worldoftanks.blitz.com/
